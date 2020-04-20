@@ -9,8 +9,8 @@
 ラエティ番組を視聴/id878554907)
 
 ### Webs
-- [NativeCamp](nativecamp.net)
-- [PR 39](pr39.com)
+- [NativeCamp](https://nativecamp.net)
+- [PR 39](https://r39.com)
 
 ---
 
